@@ -1,5 +1,4 @@
-Chapter 4: Developing an Actionable Plan for Thinking Smart: Techniques for Developing a Plan that Integrates Thinking Smart Principles
-=======================================================================================================================================
+# Techniques for Developing a Plan that Integrates Thinking Smart Principles
 
 In this chapter, we will discuss techniques for developing an actionable plan that integrates thinking smart principles.
 

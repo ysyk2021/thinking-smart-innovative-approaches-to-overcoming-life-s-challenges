@@ -1,5 +1,4 @@
-Chapter 4: Developing an Actionable Plan for Thinking Smart: Strategies for Setting Specific, Measurable, Achievable, Relevant, and Time-Bound (SMART) Goals and Breaking Down Large Goals into Smaller Steps
-=============================================================================================================================================================================================================
+# Strategies for Setting Specific, Measurable, Achievable, Relevant, and Time-Bound (SMART) Goals and Breaking Down Large Goals into Smaller Steps
 
 Thinking smart requires more than just creative problem-solving skills. It also involves developing an actionable plan that outlines specific steps to achieve your goals. In this chapter, we will discuss strategies for setting SMART goals and breaking down large goals into smaller, manageable steps.
 

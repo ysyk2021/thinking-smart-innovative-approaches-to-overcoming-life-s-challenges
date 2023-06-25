@@ -1,5 +1,4 @@
-Chapter 6: Navigating Obstacles and Staying Focused: Techniques for Managing Distractions and Staying Focused on Priority Tasks
-===============================================================================================================================
+# Techniques for Managing Distractions and Staying Focused on Priority Tasks
 
 In today's fast-paced world, distractions are everywhere. From social media notifications to email alerts, it can be challenging to stay focused on priority tasks. In this chapter, we'll explore techniques for managing distractions and staying focused on what matters most.
 

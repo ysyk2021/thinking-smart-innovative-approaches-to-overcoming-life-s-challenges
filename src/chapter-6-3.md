@@ -1,5 +1,4 @@
-Chapter 5: Leveraging Motivation to Think Smart: Strategies for Staying Motivated When Faced with Setbacks or Challenges
-========================================================================================================================
+# Strategies for Staying Motivated When Faced with Setbacks or Challenges
 
 In this chapter, we will discuss strategies for leveraging motivation to think smart and stay motivated when faced with setbacks or challenges.
 

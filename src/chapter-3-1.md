@@ -1,5 +1,4 @@
-Chapter 2: Assessing Your Current Approach to Problem-Solving: The Importance of Assessing Your Current Approach to Problem-Solving When Seeking to Think Smart
-===============================================================================================================================================================
+# The Importance of Assessing Your Current Approach to Problem-Solving When Seeking to Think Smart
 
 Assessing your current approach to problem-solving is a critical component of thinking smart and overcoming life's challenges. In this chapter, we will explore the importance of assessing your current approach to problem-solving when seeking to think smart.
 

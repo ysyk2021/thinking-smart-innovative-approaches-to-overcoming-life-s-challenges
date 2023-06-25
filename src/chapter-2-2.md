@@ -1,5 +1,4 @@
-Chapter 1: Understanding the Fundamentals of Thinking Smart: Techniques for Cultivating a Mindset towards Thinking Smart
-========================================================================================================================
+# Techniques for Cultivating a Mindset towards Thinking Smart
 
 In this chapter, we will discuss techniques for cultivating a mindset towards thinking smart.
 

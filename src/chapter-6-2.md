@@ -1,5 +1,4 @@
-Chapter 5: Leveraging Motivation to Think Smart: Techniques for Identifying Personal Sources of Motivation and Leveraging Them Towards Goal Achievement
-=======================================================================================================================================================
+# Techniques for Identifying Personal Sources of Motivation and Leveraging Them Towards Goal Achievement
 
 Motivation is essential to thinking smart and achieving personal growth and success. In this chapter, we will explore techniques for identifying personal sources of motivation and leveraging them towards goal achievement.
 
