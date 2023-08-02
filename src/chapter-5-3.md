@@ -1,4 +1,4 @@
-Chapter 8: Strategies for Setting SMART Goals and Breaking Down Large Goals into Smaller Steps
+Strategies for Setting SMART Goals and Breaking Down Large Goals into Smaller Steps
 ==============================================================================================
 
 In this chapter, we will explore strategies for setting SMART goals and breaking down larger goals into smaller, manageable steps. By utilizing these techniques, you can enhance your goal-setting abilities, increase your chances of success, and effectively overcome life's challenges.

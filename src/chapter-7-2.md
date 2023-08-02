@@ -1,4 +1,4 @@
-Chapter 10: Techniques for Managing Distractions and Staying Focused on Priority Tasks
+Techniques for Managing Distractions and Staying Focused on Priority Tasks
 ======================================================================================
 
 In this chapter, we will explore techniques for managing distractions and staying focused on priority tasks. In today's fast-paced world, distractions can easily derail our efforts to think smart and overcome life's challenges. By implementing effective strategies to manage distractions, we can maintain focus, increase productivity, and ensure that our energy is directed towards the most important tasks at hand. This chapter will introduce several techniques to help you stay focused on your priorities.

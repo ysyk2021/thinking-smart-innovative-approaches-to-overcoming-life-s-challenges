@@ -1,4 +1,4 @@
-Chapter 9: Strategies for Staying Motivated When Faced with Setbacks or Challenges
+Strategies for Staying Motivated When Faced with Setbacks or Challenges
 ==================================================================================
 
 When faced with setbacks or challenges, staying motivated is crucial to maintain momentum and continue making progress. This chapter explores effective strategies that can help individuals stay motivated, overcome obstacles, and navigate through difficult times. By implementing these strategies, readers can develop resilience, regain focus, and keep moving forward towards their goals.
