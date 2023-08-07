@@ -1,4 +1,4 @@
-Chapter: Advanced Techniques and Strategies for Mastering the Art of Thinking Smart
+Advanced Techniques and Strategies for Mastering the Art of Thinking Smart
 ===================================================================================
 
 Introduction
