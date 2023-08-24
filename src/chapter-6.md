@@ -1,5 +1,3 @@
-Chapter 5: Leveraging Motivation to Think Smart
-===============================================
 
 Motivation plays a critical role in thinking smart and overcoming life's challenges. In this chapter, we will explore the importance of motivation in thinking smart, techniques for identifying personal sources of motivation and leveraging them towards goal achievement, and strategies for staying motivated when faced with setbacks or challenges.
 

@@ -1,5 +1,3 @@
-Chapter 2: Assessing Your Current Approach to Problem-Solving
-=============================================================
 
 Assessing your current approach to problem-solving is a critical component of thinking smart and overcoming life's challenges. In this chapter, we will explore the importance of assessing your current approach to problem-solving when seeking to think smart, techniques for identifying areas of strength and weakness in current approaches, and strategies for analyzing past successes and failures to inform future approaches.
 
