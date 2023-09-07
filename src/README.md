@@ -8,3 +8,7 @@ By reading this book, readers will gain practical insights and techniques for de
 Whether you're facing personal or professional obstacles, this book provides valuable insights and strategies for developing effective problem-solving skills that can help you navigate any challenge with resilience and determination. Remember that thinking smart is an ongoing process, and it may take time to develop these skills fully. But by being persistent, committed, and open-minded, you can unleash your full potential and achieve success in all areas of your life.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
